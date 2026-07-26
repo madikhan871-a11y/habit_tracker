@@ -1,3 +1,7 @@
+<img width="702" height="1600" alt="WhatsApp Image 2026-07-26 at 8 39 04 PM" src="https://github.com/user-attachments/assets/2227ddad-2f69-449f-9e49-e9560579e21e" />
+
+
+
 <img width="702" height="1600" alt="WhatsApp Image 2026-07-26 at 8 39 03 PM" src="https://github.com/user-attachments/assets/fb8113b6-7625-4055-a479-6f270b1cc6ef" />
 
 # flashcard
